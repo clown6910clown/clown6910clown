@@ -1,8 +1,8 @@
-- 👋 Hi, I’m clown6910
+- 👋 Hi, I’m Tushar garg
 - 👀 I’m interested in wired things
 - 🌱 I’m currently learning artifical intelligence 
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach: me mail me on -> agarwaltushar3710#gmail.com
+- 📫 How to reach: me mail me on -> agarwaltushar3710@gmail.com
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: MY HAPPINESS LEVEL IS SAME AS THE CLOWN ;)
 
